@@ -1,1 +1,0 @@
-# Abilit_informatiche
